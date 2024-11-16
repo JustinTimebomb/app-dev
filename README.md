@@ -49,6 +49,3 @@
 ## **Memorable Quote**  
 > **Doc Brown:** “Roads? Where we’re going, we don’t need roads.”  
 
----
-
-Let me know if you'd like to customize this further! 😊
